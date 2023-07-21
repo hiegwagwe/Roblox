@@ -1,2 +1,1 @@
-# Roblox
-exploits
+Ran just like any other roblox executer. But instead this is WAY WAY WAY WAY WAY WAY WAY WAY better. download then open the app. Then it makes you create an account. After you do that it will let you choose if you want to use paid or free version. for paid version. Contact  30glxck on discord. for free version just seletct free version and continue. after that, Enjoy!
